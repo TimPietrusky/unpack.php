@@ -3,7 +3,7 @@
 
 2012 by Tim Pietrusky
       
-free for all and everything, just buy me a beer!
+free for all and everything, just buy me a beer (_pretty please_)!
 
 
 ## Problem
